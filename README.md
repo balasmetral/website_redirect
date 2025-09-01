@@ -1,0 +1,1 @@
+This website just for redirection to "www.balasmetral.com"
